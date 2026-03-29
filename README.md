@@ -18,7 +18,7 @@
   <tr>
     <th>
       $\color{#00000}{\textsf{＞＜﹐chance  /  isaac}}$ <br>
-      $\color{#7D8E9B}{\textsf{　♡𓏼　𓃉　he/they/it yes﹕}}$ <br>
+      $\color{#7D8E9B}{\textsf{　♡𓏼　𓃉　he/they/it ﹕}}$ <br>
       $\color{#00000}{\textsf{　　 🎱　﹒　06/01/20xx }}$ <br>
       $\color{#7D8E9B}{\textsf{pansexual , bigender }}$ <br>
       $\color{#00000}{\textsf{＞＜﹐dnis}}$ <br>
