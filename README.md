@@ -44,8 +44,7 @@
       $\color{#7D8E9B}{\textsf{please ask when u wnna friend req me}}$ <br>
       $\color{#00000}{\textsf{　　 　♡𓏼　𓃉　im  decisive towards  new  people　﹒　}}$ <br>
       $\color{#7D8E9B}{\textsf{＞＜﹐ i would like to know about you more first!}}$ <br>
-      $\color{#00000}{\textsf{ ! my ugly gang slash jay}}$ <br>
-      $\color{#7D8E9B}{\textsf{　　 　﹒　shizle(boyfie) , kiesti , noli , parrotx2 , jean , izo  ﹕}}$ <br>
+      $\color{#7D8E9B}{\textsf{　　 　﹒　not showinf this reporsitie for a reason﹕}}$ <br>
 </th>
 </tr>
 </table>
